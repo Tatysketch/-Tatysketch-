@@ -1,2 +1,0 @@
-# -Tatysketch-
-Apresentação Profissional
